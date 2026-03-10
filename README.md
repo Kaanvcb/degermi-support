@@ -6,7 +6,7 @@ Welcome to the support page for the **Değer mi?** application. We are committed
 If you have any questions, suggestions, or technical issues regarding the app, please feel free to reach out to us.
 
 ### Contact Information
-- **Email:** hkaan.aydemir03@gmail.com
+- **Email:** prodbum18@gmail.com
 - **Response Time:** We usually respond within 24-48 hours.
 
 ### Privacy & Terms
